@@ -1,7 +1,7 @@
 - hello! i’m @kallistaz, but you can call me kallista ♡
-- ✦ pronouns: she/her/
-- ✦ currently learning about digital systems and web integrations
-- ✦ how to reach me:
+- pronouns: she/her ✦ 
+- currently learning about digital systems and web integrations :)
+- how to reach me ✉
 -     ⭒ email: kallistaurus@gmail.com
 -     ⭒ linkedin: https://www.linkedin.com/in/kallista-zhang-8071532a2/
 
